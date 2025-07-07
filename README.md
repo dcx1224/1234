@@ -27,4 +27,4 @@
 热门推荐与个性化推荐
 本站不仅提供最新的日本AV免费资源，还会根据你的观看历史和评分为你推送热门影片和相关推荐。你将第一时间看到热门女优的最新作品以及所有热门的日本AV影片，无需手动搜索。我们定期更新推荐榜单，保证你总能找到最受欢迎的影片。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dcx1224/1234 ）</span>
